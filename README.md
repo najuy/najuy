@@ -1,4 +1,4 @@
 ## oi, eu sou a anajuia
-## faço projeto espetaculo mais conhecido como teatro
+## p.e
 ## espero viver muito esse ano e ter muito aprendizado
 ## sou uma lash designer
